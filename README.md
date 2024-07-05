@@ -1,1 +1,1 @@
-THis project is fo fun only. I do it because i boring :p
+This project is for fun only. I do it because I Bored :p
